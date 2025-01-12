@@ -1,1 +1,1 @@
-# cashbackcheck-privacy-policy
+# kuplus-privacy-policy
